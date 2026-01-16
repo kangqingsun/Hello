@@ -17,4 +17,4 @@ talha shoping list
 
 > to be or not to be
 
-if you want to make a link just do this【https://baidu.com]
+if you want to make a link just do this【草尼玛】（https://baidu.com）
