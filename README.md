@@ -17,5 +17,5 @@ talha shoping list
 
 > to be or not to be
 
-if you want to make a link just do this【草尼玛】（https://baidu.com）
-！【Troll】（https://www.istockphoto.com/hk/%E5%9C%96%E7%89%87/%E9%82%8A%E5%A2%83%E7%89%A7%E7%BE%8A%E7%8A%AC）
+if you want to make a link just do this[草尼玛]（https://baidu.com）
+！[Troll]（https://www.istockphoto.com/hk/%E5%9C%96%E7%89%87/%E9%82%8A%E5%A2%83%E7%89%A7%E7%BE%8A%E7%8A%AC）
